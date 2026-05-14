@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate OneNote for macOS plugin with professional Plugin for OneNote for macOS - reminders and task automation. Featuring reminders and task automation, it's the best
 
 
 
